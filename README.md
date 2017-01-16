@@ -2,4 +2,4 @@
 
 Hi you!
 
-I'm only human after all.
+I'm only human after all like you.
